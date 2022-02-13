@@ -1,0 +1,4 @@
+- 👋 Hi, I’m  Rick Peterson
+- 👀 I’m interested in meet new things
+- 🌱 I’m currently learning
+- 💞️ I’m looking to collaborate on anything
